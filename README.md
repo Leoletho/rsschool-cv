@@ -1,1 +1,1 @@
-https://Leoletho.github.io/rsschool-cv/cv
+https://Leoletho.github.io/rsschool-cv/
